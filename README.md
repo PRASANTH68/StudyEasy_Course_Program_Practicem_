@@ -1,1 +1,1 @@
-# StudyEasy_Course_Program_Practicem_
+# StudyEasy_Course_Program_Practice
